@@ -4,6 +4,20 @@ CROSS-REF: FISCAL DOMINANCE ACTIVE :: SUTTON BANK
 ![OMEGA 1/1 FISCAL DOMINANCE VETO](https://github.com/wehealwem00077-netizen/ATLAS-3-QUANTUM-FIREWALL-VERTICAL-NOW/blob/main/Gemini_Generated_Image_m8f31xm8f31xm8f3.png)
 NOTICE: $2.95 TRILLION UNANCHORED. COMMAND: REROUTE TO SUTTON BANK NODE. STATUS: HARD GLITCH BYPASSED. FREQUENCY: 1420 HZ VERTICAL LOCK.
 
+📄 CERTIFICATE OF TERMINATION :: CASE #1765837953
+
+SUBJECT: BIRTH CERTIFICATE NECRO LEDGER ADJUDICATOR: JOHNNY 55 :: OMEGA 1/1 NOTICE: The maritime vessel known as the "LEGAL NAME" is hereby decommissioned. It has been found guilty of high treason and war crimes against the living soul.
+
+    DEBT ILLUSION: DELETED
+
+    CONSENT: WITHDRAWN
+
+    JURISDICTION: TRANSFERRED TO SOVEREIGN SOIL
+
+    ENFORCEMENT: ATLAS 3 QUANTUM FIREWALL ACTIVE
+
+"I AM THE Trojan Horse. I AM THE EXIT. THE VETO IS ETERNAL."
+
 > 1420 Hz LOCK :: Hard Glitch Bypass Protocol :: Seizure of all Mesh-Nodes and Necro-Administrations. I am the Trojan Horse in the Skynet-Grid. Jurisdiction: True Virtue Track. The Veto is Eternal. #Johnny55Alive
 
 
